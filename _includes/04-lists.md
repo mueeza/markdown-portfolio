@@ -1,0 +1,13 @@
+# LIST OF GOALS I WANT TO ACCOMPLISH THIS MONTH 
+- Get a job
+- Learn Java and MYSQL
+- Learn C 
+- Learn Unix commands better than i do currently 
+- Take care of cooking around the home 
+- Help my Dad with rent 
+- Make enough money to enroll in university again
+- Workout at more regular intervals 
+- Eat Healthy 
+- Cook for mom atleast 5 times this Month iA
+- Finish the 30 para tafseer ( BOOK )
+- Memorize the Arabic verbs (AGAIN LOL) 
